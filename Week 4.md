@@ -33,6 +33,9 @@ A trouble free experience in ensured with a modernised inbuilt food grade Alumin
 | Type of Ownership| Limited Company |
 | Management System Certification | ISO 9001 |
 
+ ![photo6096024440048562673](https://user-images.githubusercontent.com/107620285/174061600-dedfecf2-e0fd-4344-a404-a7760e2fc25e.jpg)
+ 
+
 **For users: When using electrical appliances, basic safety precautions should always be followed, including the following:**
 1.	READ ALL INSTRUCTIONS.
 2.	Do not touch hot surfaces. Use handles or knobs. Use oven mitts or potholders.
@@ -51,3 +54,10 @@ A trouble free experience in ensured with a modernised inbuilt food grade Alumin
 15.	Make sure the frying basket is locked into the front of the drawer – both frying basket handle tabs must be fully inserted into the notches on the top of the basket drawer. 
 16.	Always make sure frying basket drawer is fully closed, with frying basket handle locked securely in the drawer, while Air Fryer is in operation. 
 
+![image](https://user-images.githubusercontent.com/107620285/174061976-f87289d6-e3b0-49bf-a635-f65aee67d0f6.png)**NOTES ON THE PLUG** This appliance has a polarized plug (one blade is wider than the other). To reduce the risk of electric shock, this plug will fit in a polarized outlet only one way. If the plug does not fit fully into the outlet, reverse the plug. If it still does not fit, contact a qualified electrician. Do not modify the plug in any way.
+**NOTES ON THE CORD** The provided short power-supply cord (or detachable power-supply cord) should be used to reduce the risk resulting from becoming entangled in or tripping over a longer cord. An extension cord is not recommended for use with this product. Always plug directly into a wall outlet/receptacle
+**PLASTICIZER WARNING CAUTION:** To prevent Plasticizers from migrating to the finish of the counter top or table top or other furniture, place NON-PLASTIC coasters or place mats between the appliance and the finish of the counter top or table top. Failure to do so may cause the finish to darken; permanent blemishes may occur or stains can appear.
+**ELECTRIC POWER** If the electrical circuit is overloaded with other appliances, your appliance may not operate properly. It should be operated on a separate electrical circuit from other appliances.
+
+## Getting to Know Your Air Fryer Product may vary slightly from illustrations
+![photo6096024440048562658](https://user-images.githubusercontent.com/107620285/174062762-fb6bb8fc-6d6b-4d58-992d-b084888294e1.jpg)
