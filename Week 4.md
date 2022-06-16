@@ -19,9 +19,35 @@ A trouble free experience in ensured with a modernised inbuilt food grade Alumin
 4.  TEMP. setting 65-200ºC                                                                                          
 5.  Rotation function for whole chicken, and rolling cage for      
      popcorn                                                                                                       
-6.  Dual mesh basket for two different favour one time
+6.  Dual mesh basket for two different favour one time*
 7.  Non-stick coating for 5.5L basket with detachable handle(optional)
 8.  High speed hot air circulation 
 9.  Transparent visible window to see cooking.
 10. With overheat protection
 11. Plug:UL, exposed length 1M length
+
+**Company Info.**
+| Shenzhen Ewong Technology Co., Ltd. | is a professional, trustworthy manufacturer of home appliance OEM/ODM |
+| ------------------------------------|-----------------------------------------------------------------------|
+| Year of Establishment | 2017-02-24 |
+| Type of Ownership| Limited Company |
+| Management System Certification | ISO 9001 |
+
+**For users: When using electrical appliances, basic safety precautions should always be followed, including the following:**
+1.	READ ALL INSTRUCTIONS.
+2.	Do not touch hot surfaces. Use handles or knobs. Use oven mitts or potholders.
+3.	To protect against electric shock do not immerse cord, plugs, or appliance in water or other liquid.
+4.	This appliance is not intended for use by persons (including children) with reduced physical, sensory or mental capabilities, or lack of experience and knowledge, unless they have been given supervision or instruction concerning use of the appliance by a person responsible for their safety. 
+5.	Children should be supervised to ensure that they do not play with the appliance.
+6.	Unplug from outlet when not in use and before cleaning. Allow to cool before putting on or taking off parts, and before cleaning the appliance. 
+7.	Do not operate any appliance with a damaged cord or plug or after the appliance malfunctions, or has been damaged in any manner. Bring it to a qualified technician for examination, repair or electrical or mechanical adjustment. 
+8.	The use of accessory attachments not recommended by the appliance manufacturer may cause injuries. 
+9.	Do not use outdoors. 
+10.	Do not let cord hang over edge of table or counter, or touch hot surfaces. 
+11.	Do not place on or near a hot gas or electric burner, or in a heated oven. 
+12.	Extreme caution must be used when moving an appliance containing hot oil or other hot liquids. 
+13.	To disconnect, turn both the timer dial and temperature dial to OFF. Then remove plug from wall outlet. 
+14.	Do not use appliance for other than intended use. 
+15.	Make sure the frying basket is locked into the front of the drawer – both frying basket handle tabs must be fully inserted into the notches on the top of the basket drawer. 
+16.	Always make sure frying basket drawer is fully closed, with frying basket handle locked securely in the drawer, while Air Fryer is in operation. 
+
