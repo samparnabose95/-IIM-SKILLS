@@ -77,3 +77,14 @@ IMPORTANT: When you pull the drawer out from the Air Fryer body, the red POWER l
 1. Your Air Fryer is shipped with the frying basket locked into the drawer, inside the Air Fryer body. Firmly grasp the frying basket handle to open frying basket drawer; then remove the drawer from the machine and place on a flat, clean work area. 2. To unlock and remove the frying basket from the drawer: slide the clear basket lock forward to expose the basket release button. Press the basket release button with your thumb while pulling the frying basket straight up and out of the drawer. (Refer to Figure 1) 3. Remove all packing material and labels from the inside and outside of the Air Fryer. Check that there is no packaging underneath and around the frying basket and drawer. 4. Wash frying basket and drawer in hot, soapy water. 5. DO NOT IMMERSE THE AIR FRYER BODY IN WATER. Wipe Air Fryer body with a damp cloth. Dry all parts thoroughly. 6. Lock the clean frying basket into the drawer. There are 2 tabs on each side of the handle. Slide the 2 handle tabs into the notches on the top of the basket drawer. An audible click can be heard as the frying basket handle locks securely into place. 
 **IMPORTANT:** Slide the clear basket lock back over the basket release button to prevent accidental frying basket release. (Refer to Figure 1)
 ![image](https://user-images.githubusercontent.com/107620285/174063661-90f25445-1f3c-4a35-8649-5396f9806f5c.png)
+WARNING: Air Fryer will not operate unless frying basket drawer is fully closed. CAUTION: After hot air frying, the frying basket and frying basket drawer and the cooked foods are hot. Extreme caution must be used when handling the hot Air Fryer basket/drawer.
+
+WARNING: After air frying, make sure to place the frying basket drawer on a flat, heat-resistant surface before pressing the basket release button. 
+WARNING: Under- or over-filling the frying basket may damage the Air Fryer and could result in serious personal injury.
+This unit should not be used to boil water.
+NOTE: During first use, the Air Fryer may emit a slight odor. This is normal. 
+![image](https://user-images.githubusercontent.com/107620285/174064208-e415225d-cba0-4e12-8c48-fcb6fdd00908.png)
+
+![image](https://user-images.githubusercontent.com/107620285/174064728-f0d740ea-75ad-45f6-8546-c93600eaf87d.png)
+
+
