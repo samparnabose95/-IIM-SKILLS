@@ -85,6 +85,18 @@ This unit should not be used to boil water.
 NOTE: During first use, the Air Fryer may emit a slight odor. This is normal. 
 ![image](https://user-images.githubusercontent.com/107620285/174064208-e415225d-cba0-4e12-8c48-fcb6fdd00908.png)
 
-![image](https://user-images.githubusercontent.com/107620285/174064728-f0d740ea-75ad-45f6-8546-c93600eaf87d.png)
+![image](https://user-images.githubusercontent.com/107620285/174067864-3f44943d-0421-45b7-9724-5fdc40edd741.png)
+
+## CAUTION: 
+Always use oven mitts when handling the hot air fryer basket. 
+Hot oil can collect at the base of the drawer. To avoid risk of burns or personal injury, or to avoid oil from contaminating air fried foods, always unlock and remove the frying basket from the drawer before emptying. 
+NEVER turn the drawer upside down with the frying basket attached. 
+**NOTE:** The Air Fryer can be turned OFF at any time by turning the timer dial to 0. 10. One beep will sound when the set air frying time has expired. The Air Fryer will turn OFF automatically. Both the red POWER light and the blue HEAT ON light will turn off. 
+Shake the frying basket/drawer vigorously and check food for browning and doneness. If additional air frying is needed, adjust temperature if desired, and set timer for 5 minute increments until fully cooked. 
+Allow cooked food to rest for 5 to 10 seconds before removing basket drawer from Air Fryer or food from frying basket. 
+When air frying is finished, remove the drawer from the machine and place on a flat, heat resistant surface. Then remove frying basket from the drawer.
+Shake air fried foods out onto serving area. Promptly return the frying basket to the drawer and lock into place. Continue with subsequent batches, if any. 
+**NOTE:** When the next batch is ready, the Air Fryer’s 1500-watt heating system will quickly heat and recover. 15. When all air frying is completed, turn both the temperature control dial and the timer dial to 0 (OFF). Both the red POWER light and the blue HEAT ON light will turn off. 16. Unplug the Air Fryer when not in use. 
+
 
 
